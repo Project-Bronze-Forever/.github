@@ -1,4 +1,6 @@
-## Hi there 👋
+## 👋 How did u find this. OwO
+
+### If you need to contact us: business@getnoobedgames.com
 
 <!--
 
